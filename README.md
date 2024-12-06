@@ -1,1 +1,1 @@
-# InfosysSpringboard_Intership5.0_Team3
+# InfosysSpringboard_Intership5.0_EDUConsultancy_Team3
